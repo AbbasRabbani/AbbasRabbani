@@ -1,1 +1,1 @@
-![Github_Banner](https://imgur.com/a/ec0qazm)
+![Github_Banner](./github_banner.png)
