@@ -1,1 +1,1 @@
-![Github_Banner](https://photos.app.goo.gl/oprXymeGh76Q1qx56)
+![Github_Banner](https://imgur.com/a/ec0qazm)
